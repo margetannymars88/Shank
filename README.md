@@ -223,4 +223,4 @@ Shank is offered as a complete free version with all features and updates includ
 Don't miss out on the action! Download Shank now for a thrilling gaming experience.
 
 ---
-**Last updated:** 2026-09-17 23:51:08 UTC
+**Last updated:** 2026-09-18 02:50:25 UTC
